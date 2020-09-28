@@ -6,3 +6,9 @@ Accent on helpful side of your nature.  Drain the moat.
 They spell it "da Vinci" and pronounce it "da Vinchy".  Foreigners
 always spell better than they pronounce.
 		-- Mark Twain
+You will be advanced socially, without any special effort on your part.
+You will wish you hadn't.
+Q:	How much does it cost to ride the Unibus?
+A:	2 bits.
+Q:	What is the difference between Texas and yogurt?
+A:	Yogurt has culture.
