@@ -12,3 +12,5 @@ Q:	How much does it cost to ride the Unibus?
 A:	2 bits.
 Q:	What is the difference between Texas and yogurt?
 A:	Yogurt has culture.
+Suspicion always haunts the guilty mind.
+		-- Wm. Shakespeare
